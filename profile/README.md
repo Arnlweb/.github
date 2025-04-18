@@ -2,7 +2,7 @@
 **Since 2010 | Trusted by 1,000+ Clients**  
 
 ## About Us  
-ARNL Web Solutions is a web development agency specializing in custom websites, mobile apps, and SEO strategies. Founded in 2010, we focus on delivering measurable results through data-driven solutions.  
+ARNLWeb Solutions is a web development agency specializing in custom websites, mobile apps, and SEO strategies. Founded in 2010, we focus on delivering measurable results through data-driven solutions.  
 
 ---
 
